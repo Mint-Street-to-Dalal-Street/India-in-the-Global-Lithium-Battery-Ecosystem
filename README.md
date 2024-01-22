@@ -1,4 +1,4 @@
-# References 
+## References 
 
 Ministry of Mines. "Lithium Reserves Found in Jammu and Kashmir." Press Information Bureau, Government of India, 10 Feb. 2023, 1 
 
